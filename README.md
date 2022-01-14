@@ -1,2 +1,2 @@
 # WhosWizzy.github.io
-# Its shit
+It's bad, leave it
